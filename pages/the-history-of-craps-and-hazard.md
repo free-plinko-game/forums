@@ -1,4 +1,4 @@
-## The History of Craps and Hazard
+## The History of [Craps](https://www.sunvegascasino.com/casino-games/craps/) and Hazard
 
 Craps and Hazard are two popular dice games with rich histories that stretch back several centuries. The evolution of these games has been marked by changes in rules, names, and geographic spread. 
 
