@@ -1,6 +1,6 @@
 ## Aristocrat Gaming: An Australian Powerhouse
 
-Aristocrat Gaming, a subsidiary of Aristocrat Leisure Limited, is a renowned manufacturer and designer of gaming technology. Founded in 1953, the company has grown from its humble beginnings in Australia to become a prominent player in the global gaming industry. It is recognized for its innovative approach to slot machines and other gaming products, which have significantly influenced the casino landscape worldwide.
+Aristocrat Gaming, a subsidiary of Aristocrat Leisure Limited, is a renowned manufacturer and designer of gaming technology. Founded in 1953, the company has grown from its humble beginnings in Australia to become a prominent player in the global gaming industry. It is recognized for its innovative approach to [slot machines](https://www.sunvegascasino.com/online-pokies/) and other gaming products, which have significantly influenced the casino landscape worldwide.
 
 ### History and Expansion
 
