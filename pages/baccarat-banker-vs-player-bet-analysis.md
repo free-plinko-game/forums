@@ -1,4 +1,4 @@
-## Baccarat Banker vs Player Bet Analysis
+## [Baccarat](https://www.sunvegascasino.com/casino-games/baccarat/) Banker vs Player Bet Analysis
 
 ### Introduction to Baccarat
 
