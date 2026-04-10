@@ -1,4 +1,4 @@
-## Roulette Betting Systems and Their Flaws
+## [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) Betting Systems and Their Flaws
 
 Roulette is a classic casino game that has captivated gamblers for centuries. Despite its simple rules and straightforward gameplay, many enthusiasts attempt to maximize their potential winnings through various betting systems. However, each of these systems has flaws that can impact a player's success. This article explores several popular roulette betting systems and their inherent shortcomings.
 
