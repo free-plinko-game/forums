@@ -26,7 +26,7 @@ Land-based casinos, also known as brick-and-mortar casinos, provide a traditiona
    
 2. **Large Winnings Payment**: For larger amounts, land-based casinos may require some processing time. In many cases, winnings above a specific threshold are paid via check or bank transfer, which can introduce delays similar to those found in online casinos.
 
-3. **Table Game Winnings**: In table games such as poker or blackjack, winnings are often paid out immediately. However, the time can vary depending on casino policy and the amount won.
+3. **Table Game Winnings**: In table games such as poker or [blackjack](https://www.sunvegascasino.com/casino-games/blackjack/), winnings are often paid out immediately. However, the time can vary depending on casino policy and the amount won.
 
 ### Comparison of Payout Speed
 
