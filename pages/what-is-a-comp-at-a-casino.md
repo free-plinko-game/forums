@@ -10,7 +10,7 @@ The concept of comps has its roots in the early Las Vegas casinos, where operato
 
 Casinos offer a wide array of comps, and these can vary depending on the establishment and the player's activity. Common types of comps include:
 
-- **Free Play**: This involves providing credits to play games, which can be used on slot machines or other electronic gaming devices.
+- **Free Play**: This involves providing credits to play games, which can be used on [slot machines](https://www.sunvegascasino.com/online-pokies/) or other electronic gaming devices.
 - **Food and Beverage**: Complimentary meals, drinks, and snacks are standard offerings, typically available at on-site restaurants or bars.
 - **Lodging**: Casino hotels often provide free or discounted rooms to entice players to extend their stays.
 - **Entertainment**: Free or discounted tickets to shows, concerts, or sporting events may be offered.
