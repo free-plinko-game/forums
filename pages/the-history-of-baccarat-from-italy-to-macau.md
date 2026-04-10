@@ -1,4 +1,4 @@
-## The History of Baccarat: From Italy to Macau
+## The History of [Baccarat](https://www.sunvegascasino.com/casino-games/baccarat/): From Italy to Macau
 
 Baccarat is a card game that enjoys immense popularity in casinos worldwide, especially in Asia. Despite its modern associations with glitzy casino environments, the game's origins are relatively modest. Over several centuries, baccarat evolved from a regional card game in Italy to a staple of high-stakes gaming in Macau.
 
