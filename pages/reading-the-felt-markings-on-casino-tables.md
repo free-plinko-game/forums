@@ -32,7 +32,7 @@ Craps tables are larger and more intricate in their design. The layout is duplic
 - **Come and Don’t Come Areas**: Used for place bets following the come-out roll.
 - **Field and Proposition Bets**: Areas for special, one-roll, or proposition bets, often located in the center for easy access by the stickman.
 
-#### Baccarat Tables
+#### [Baccarat](https://www.sunvegascasino.com/casino-games/baccarat/) Tables
 
 Baccarat offers a more straightforward layout but still has specific markings designed to accommodate the game's mechanics:
 
