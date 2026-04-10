@@ -10,7 +10,7 @@ Wagering requirements, also known as playthrough or rollover requirements, repre
 
 Wagering requirements are usually applied to various types of casino bonuses, including welcome bonuses, free spins, and reload bonuses. The key points to consider include:
 
-1. **Bonus Type**: Different bonuses have different wagering requirements. For example, a welcome bonus may have a 35x requirement, while free spins might come with a 50x requirement on winnings.
+1. **Bonus Type**: Different bonuses have different wagering requirements. For example, a [welcome bonus](https://www.sunvegascasino.com/casino-bonuses/welcome/) may have a 35x requirement, while free spins might come with a 50x requirement on winnings.
 
 2. **Contribution Rates**: Not all games contribute equally towards meeting the wagering requirements. Slots generally have a high contribution rate, often 100%, meaning every dollar wagered counts in full. However, table games like blackjack and roulette may have much lower contribution rates, sometimes as low as 10% or even excluded entirely.
 
