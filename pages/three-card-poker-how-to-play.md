@@ -1,4 +1,4 @@
-## Three Card Poker: How to Play
+## [Three Card Poker](https://www.sunvegascasino.com/online-poker/3-card/): How to Play
 
 Three Card Poker is a popular casino table game that combines the strategy of poker with the simplicity and speed of a casino card game. Invented by Derek Webb in 1994, it has become a staple in many casinos worldwide due to its easy-to-understand rules and swift gameplay. This guide provides an overview of the game's rules, the betting options available, and basic strategy tips for players.
 
