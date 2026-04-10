@@ -1,4 +1,4 @@
-## Slot Machines: How They Work
+## [Slot Machines](https://www.sunvegascasino.com/online-pokies/): How They Work
 
 Slot machines are a popular form of gambling found in casinos and online platforms worldwide. These devices offer players the chance to win money by spinning reels that display a variety of symbols. Understanding how slot machines work can enhance the gaming experience and help demystify some of the common misconceptions about them.
 
