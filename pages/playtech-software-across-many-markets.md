@@ -1,4 +1,4 @@
-## Playtech: Software Across Many Markets
+## [Playtech](https://www.sunvegascasino.com/software/playtech/): Software Across Many Markets
 
 Playtech is one of the leading software development companies specializing in online gambling technology. Founded in 1999, Playtech has established itself as a prominent provider of software solutions for a wide range of gaming operators, including online casinos, sports betting platforms, bingo, poker rooms, and more. The company's substantial influence and diverse product offerings have allowed it to make significant inroads into various gaming markets globally.
 
