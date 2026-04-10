@@ -12,7 +12,7 @@ Slot machines are a popular form of entertainment in casinos worldwide, and unde
 
 - **Wild Symbol**: A special symbol that can substitute for other symbols to complete winning combinations, much like a joker in card games.
 
-- **Scatter Symbol**: Symbols that usually trigger free spins or bonus rounds when a certain number appear on the reels, regardless of their position.
+- **Scatter Symbol**: Symbols that usually trigger [free spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/) or bonus rounds when a certain number appear on the reels, regardless of their position.
 
 ### Gameplay and Mechanics
 
