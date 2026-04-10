@@ -1,4 +1,4 @@
-## Video Poker Variants Overview
+## [Video Poker](https://www.sunvegascasino.com/online-poker/video-poker/) Variants Overview
 
 Video poker is a popular casino game that combines elements of traditional poker with electronic gaming. It originated in the mid-1970s and has since evolved into various variants, each offering unique rules and payout structures. This overview explores some of the most common video poker variants available to players in both land-based and online casinos.
 
