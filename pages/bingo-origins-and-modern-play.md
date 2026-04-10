@@ -16,7 +16,7 @@ In contemporary settings, bingo is typically played with cards featuring a 5x5 g
 
 Several variations of bingo exist to suit diverse preferences. The 75-ball bingo is most common in North America, while the 90-ball version is favored in the United Kingdom and Australia. Other formats include 30-ball (often known as "speed bingo") and 80-ball games, each with unique rules and gameplay styles. 
 
-#### Online Bingo
+#### [Online Bingo](https://www.sunvegascasino.com/casino-games/bingo/)
 
 The advent of the internet has revolutionized bingo, making it more accessible than ever. Online bingo platforms offer digital versions of the game, often with features that simulate the social aspect of traditional bingo halls. Players can interact with each other through chat rooms, participate in themed games, and win real or virtual prizes.
 
