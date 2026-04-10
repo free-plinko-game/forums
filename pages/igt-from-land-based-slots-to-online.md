@@ -10,7 +10,7 @@ IGT was originally founded as A-1 Supply by William Redd in 1975, focusing prima
 
 #### Video Slots
 
-One of IGT's most significant contributions to the land-based gaming industry was the development of video slot machines. In the early 1980s, IGT launched the first video poker machines, which quickly became popular due to their use of video screens instead of mechanical reels. This innovation led to more dynamic gameplay and laid the groundwork for future advancements.
+One of IGT's most significant contributions to the land-based gaming industry was the development of video slot machines. In the early 1980s, IGT launched the first [video poker](https://www.sunvegascasino.com/online-poker/video-poker/) machines, which quickly became popular due to their use of video screens instead of mechanical reels. This innovation led to more dynamic gameplay and laid the groundwork for future advancements.
 
 #### Progressive Jackpots
 
