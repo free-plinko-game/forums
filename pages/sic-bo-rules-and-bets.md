@@ -1,4 +1,4 @@
-## Sic Bo: Rules and Bets
+## [Sic Bo](https://www.sunvegascasino.com/casino-games/sic-bo/): Rules and Bets
 
 Sic Bo, a popular game of chance originating from ancient China, is a dice-based casino game known for its dynamic pace and a wide variety of betting options. It is commonly played with three dice and a table similar in appearance to that of a roulette table, replete with multiple sections where players can place their bets. This article outlines the fundamental rules of Sic Bo and explores the diverse array of bets available to players.
 
