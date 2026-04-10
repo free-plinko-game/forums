@@ -4,7 +4,7 @@ Poker is a widely popular card game characterized not only by its competitive an
 
 ### General Poker Terms
 
-- **Blinds**: In games like Texas Hold'em, the "small blind" and "big blind" are mandatory bets posted by players to the left of the dealer, intended to stimulate activity in the game. These replace traditional antes in many poker games.
+- **Blinds**: In games like [Texas Hold'em](https://www.sunvegascasino.com/online-poker/texas-holdem/), the "small blind" and "big blind" are mandatory bets posted by players to the left of the dealer, intended to stimulate activity in the game. These replace traditional antes in many poker games.
   
 - **Pot**: The pot refers to the total sum of money or chips that players risk in a single hand. It serves as the ultimate prize for winning a round.
 
