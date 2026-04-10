@@ -1,4 +1,4 @@
-## Free Spins Promotions Explained
+## [Free Spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/) Promotions Explained
 
 Free spins are a popular form of promotion offered by online casinos to attract new players and retain existing ones. This type of bonus allows players to spin the reels of slot games a certain number of times without using their own money. Free spins can be a valuable opportunity for players to explore new games or increase their winnings without additional financial investment.
 
