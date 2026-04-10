@@ -1,4 +1,4 @@
-## Roulette Wheel Layouts Compared
+## [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) Wheel Layouts Compared
 
 Roulette is a popular casino game with a rich history and variations that appeal to different player preferences. The layout of the roulette wheel is one of the main aspects distinguishing each variant. This article compares the layouts of the three most common types of roulette wheels: European, American, and French. Understanding these differences can aid players in choosing their preferred version and inform strategies applied at the table.
 
