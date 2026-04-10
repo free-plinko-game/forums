@@ -12,7 +12,7 @@ Wagering requirements, also known as playthrough requirements, specify the numbe
 
 #### Eligible Games
 
-Not all games contribute equally towards fulfilling wagering requirements. Some games may contribute 100%, while others contribute less, or are entirely excluded. Slot games typically contribute fully, whereas table games like blackjack and roulette might contribute at a lower percentage due to their lower house edge.
+Not all games contribute equally towards fulfilling wagering requirements. Some games may contribute 100%, while others contribute less, or are entirely excluded. Slot games typically contribute fully, whereas table games like blackjack and [roulette](https://www.sunvegascasino.com/casino-games/roulette/) might contribute at a lower percentage due to their lower house edge.
 
 #### Expiry Date
 
