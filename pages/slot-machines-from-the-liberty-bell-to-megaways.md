@@ -1,4 +1,4 @@
-## Slot Machines: From the Liberty Bell to Megaways
+## [Slot Machines](https://www.sunvegascasino.com/online-pokies/): From the Liberty Bell to Megaways
 
 Slot machines have evolved significantly since their inception in the late 19th century. From early mechanical devices to sophisticated digital platforms, slot machines have become a staple of the casino gaming industry. This article explores the historical development and technological advancements of slot machines, highlighting key milestones from the Liberty Bell to the modern Megaways system.
 
