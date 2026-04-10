@@ -1,4 +1,4 @@
-## Pragmatic Play: Slots and Live Casino
+## [Pragmatic Play](https://www.sunvegascasino.com/software/pragmatic/): Slots and Live Casino
 
 Pragmatic Play is an established software provider in the online gaming industry, known for its diverse portfolio of slots and live casino offerings. Founded in 2015, the company has quickly risen to prominence by providing high-quality gaming experiences to operators and players worldwide.
 
