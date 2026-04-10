@@ -21,7 +21,7 @@ A casino is an establishment where various games of chance are played, and gambl
 Casinos typically consist of several gaming sections:
 - **Table Games**: Include games like blackjack, poker, baccarat, and craps.
 - **Slot Machines**: Electronic games that are easy to play and popular among beginners.
-- **Video Poker Machines**: Combine elements of both slots and traditional poker.
+- **[Video Poker](https://www.sunvegascasino.com/online-poker/video-poker/) Machines**: Combine elements of both slots and traditional poker.
 - **Sportsbooks**: Areas dedicated to betting on various sports events.
 
 #### Basic Etiquette
