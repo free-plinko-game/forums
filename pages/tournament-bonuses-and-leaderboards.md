@@ -8,7 +8,7 @@ Tournament bonuses are special promotions awarded to players who participate in 
 
 #### Types of Tournament Bonuses
 
-- **Entry Bonuses**: These are bonuses awarded simply for entering a tournament. They often involve crediting the player's account with free spins or bonus cash that can be used throughout the tournament.
+- **Entry Bonuses**: These are bonuses awarded simply for entering a tournament. They often involve crediting the player's account with [free spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/) or bonus cash that can be used throughout the tournament.
 
 - **Match Bonuses**: Sometimes given as a deposit bonus when players enter a tournament. The casino matches a percentage of the player's deposit, providing them with additional funds to participate.
 
