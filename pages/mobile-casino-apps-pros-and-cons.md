@@ -18,7 +18,7 @@ Mobile casino apps are dedicated applications designed to offer casino games and
 
 4. **Bonuses and Promotions**
 
-   Mobile apps frequently provide exclusive bonuses and promotions for their users, including welcome bonuses, free spins, and loyalty rewards. These incentives can enhance the perceived value of the gambling experience and attract new users.
+   Mobile apps frequently provide exclusive bonuses and promotions for their users, including [welcome bonuses](https://www.sunvegascasino.com/casino-bonuses/welcome/), free spins, and loyalty rewards. These incentives can enhance the perceived value of the gambling experience and attract new users.
 
 5. **Security**
 
