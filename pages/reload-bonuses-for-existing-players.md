@@ -1,6 +1,6 @@
 ## Reload Bonuses for Existing Players
 
-Reload bonuses are a type of incentive offered by online casinos to existing players, designed to encourage further deposits and ongoing engagement with the gaming platform. These bonuses serve as a crucial tool in player retention strategies, providing added value to players who routinely deposit funds into their casino accounts. Unlike welcome bonuses aimed at attracting new players, reload bonuses specifically target a casino's returning customers.
+Reload bonuses are a type of incentive offered by online casinos to existing players, designed to encourage further deposits and ongoing engagement with the gaming platform. These bonuses serve as a crucial tool in player retention strategies, providing added value to players who routinely deposit funds into their casino accounts. Unlike [welcome bonuses](https://www.sunvegascasino.com/casino-bonuses/welcome/) aimed at attracting new players, reload bonuses specifically target a casino's returning customers.
 
 ### Definition and Purpose
 
