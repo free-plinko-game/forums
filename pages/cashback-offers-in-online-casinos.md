@@ -4,7 +4,7 @@ Cashback offers are a type of promotional incentive commonly provided by online 
 
 ### Understanding Cashback Offers
 
-Cashback offers are primarily designed to provide players with a safety cushion, softening the impact of losses and encouraging continued play. Unlike other types of bonuses, such as deposit matches or free spins, cashback deals directly relate to the player's gambling activity, specifically their losses. The amount returned varies depending on the casino's terms, but it is typically a small percentage, often ranging from 5% to 25%.
+Cashback offers are primarily designed to provide players with a safety cushion, softening the impact of losses and encouraging continued play. Unlike other types of bonuses, such as deposit matches or [free spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/), cashback deals directly relate to the player's gambling activity, specifically their losses. The amount returned varies depending on the casino's terms, but it is typically a small percentage, often ranging from 5% to 25%.
 
 #### How Cashback Offers Work
 
