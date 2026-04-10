@@ -36,7 +36,7 @@ Casinos present a unique environment filled with a variety of games, rules, and 
 
 - **Bluff**: To bet on a weak hand in an attempt to deceive opponents into folding stronger hands.
 
-- **Flop**: In Texas Hold'em, the first three community cards dealt face-up on the board.
+- **Flop**: In [Texas Hold'em](https://www.sunvegascasino.com/online-poker/texas-holdem/), the first three community cards dealt face-up on the board.
 
 - **River**: The fifth and final community card dealt in a poker game, specifically in games like Texas Hold'em or Omaha.
 
