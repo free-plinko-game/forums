@@ -1,4 +1,4 @@
-## The History of Blackjack
+## The History of [Blackjack](https://www.sunvegascasino.com/casino-games/blackjack/)
 
 Blackjack is one of the most popular card games in the world, boasting a rich history that spans several centuries and continents. This card game, also known by the names "21" and "Vingt-et-Un," has evolved over time, adapting various rules and strategies that have contributed to its widespread appeal.
 
