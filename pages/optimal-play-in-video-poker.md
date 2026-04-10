@@ -1,4 +1,4 @@
-## Optimal Play in Video Poker
+## Optimal Play in [Video Poker](https://www.sunvegascasino.com/online-poker/video-poker/)
 
 Video poker is a casino game that combines elements of both slot machines and poker. Unlike traditional poker, video poker is played on a digital console similar to a slot machine. The game typically involves drawing five cards and then choosing which to hold or discard to make the best possible poker hand. Optimal play in video poker is essentially about making mathematically correct decisions to maximize returns over the long term.
 
