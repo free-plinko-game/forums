@@ -1,6 +1,6 @@
 ## Pai Gow Poker Explained
 
-Pai Gow Poker is a casino card game that combines elements of the ancient Chinese game of Pai Gow and traditional poker. It is a game of skill and strategy, often enjoyed by players who appreciate a slower pace and a lower volatility in their gambling experiences. The game is typically found in casinos throughout the world and offers players a unique alternative to more fast-paced card games, such as blackjack and Texas Hold'em.
+Pai Gow Poker is a casino card game that combines elements of the ancient Chinese game of Pai Gow and traditional poker. It is a game of skill and strategy, often enjoyed by players who appreciate a slower pace and a lower volatility in their gambling experiences. The game is typically found in casinos throughout the world and offers players a unique alternative to more fast-paced card games, such as blackjack and [Texas Hold'em](https://www.sunvegascasino.com/online-poker/texas-holdem/).
 
 ### History and Origin
 
