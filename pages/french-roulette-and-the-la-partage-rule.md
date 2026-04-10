@@ -1,4 +1,4 @@
-## French Roulette and the La Partage Rule
+## French [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) and the La Partage Rule
 
 French Roulette is a popular variant of the classic casino game of roulette, distinguished by specific rules and game design elements that provide players with unique strategic options. Among its defining features is the *La Partage* rule, which gives an added layer of sophistication to the game.
 
