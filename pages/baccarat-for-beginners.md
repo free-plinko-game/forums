@@ -1,4 +1,4 @@
-## Baccarat for Beginners
+## [Baccarat](https://www.sunvegascasino.com/casino-games/baccarat/) for Beginners
 
 Baccarat is a popular card game that is often associated with high stakes and glamour. It has a long history and is known for its simplicity. This makes it an attractive choice for both novice and seasoned casino players. This guide aims to introduce beginners to the game of Baccarat, covering its basic rules, variations, and strategies.
 
