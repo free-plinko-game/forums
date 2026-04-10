@@ -1,4 +1,4 @@
-## Pontoon: The British Cousin of Blackjack
+## Pontoon: The British Cousin of [Blackjack](https://www.sunvegascasino.com/casino-games/blackjack/)
 
 Pontoon is a popular card game primarily played in the United Kingdom and other parts of the British Commonwealth. It shares a close resemblance to Blackjack, a game with more global recognition, yet retains distinct rules and features that set it apart. This game of chance and strategy has been a staple in British gaming circles and continues to enjoy popularity in online casinos and home game settings.
 
