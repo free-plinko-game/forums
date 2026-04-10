@@ -25,7 +25,7 @@ Casino chip denominations vary, but there are standard practices across differen
 
 #### Special Denominations
 
-Some casinos also feature tokens for smaller denominations, such as $2.50, which can be used in certain games like roulette. Conversely, larger denominations in the thousands, or even greater, exist for exclusive players in high-stakes environments.
+Some casinos also feature tokens for smaller denominations, such as $2.50, which can be used in certain games like [roulette](https://www.sunvegascasino.com/casino-games/roulette/). Conversely, larger denominations in the thousands, or even greater, exist for exclusive players in high-stakes environments.
 
 ### Design and Authentication
 
