@@ -16,7 +16,7 @@ As poker spread through the Mississippi River, primarily via riverboats, it bega
 
 ### Evolution and Standardization
 
-The Civil War era saw many new poker variations developed, reflecting the diverse backgrounds of soldiers and civilians who engaged with the game. Notable variations that emerged included stud poker, draw poker, and the beginning of community card games like Texas Hold'em, which became particularly popular later in the 20th century.
+The Civil War era saw many new poker variations developed, reflecting the diverse backgrounds of soldiers and civilians who engaged with the game. Notable variations that emerged included stud poker, draw poker, and the beginning of community card games like [Texas Hold'em](https://www.sunvegascasino.com/online-poker/texas-holdem/), which became particularly popular later in the 20th century.
 
 One critical development during this period was the formalization of poker rules and hand rankings. As poker spread across the United States, particularly in the Wild West frontier towns, a common set of rules began to emerge, fostering a more standardized game. This process facilitated the establishment of poker tournaments and competitive play.
 
