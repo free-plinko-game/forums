@@ -1,4 +1,4 @@
-## The Evolution of Video Poker
+## The Evolution of [Video Poker](https://www.sunvegascasino.com/online-poker/video-poker/)
 
 Video poker is a popular casino game that blends elements of both slot machines and traditional poker. Its advancement since inception illustrates a remarkable journey through technological innovations and shifts in gambling preferences. Today, video poker stands as a staple in both land-based and online casinos around the world.
 
