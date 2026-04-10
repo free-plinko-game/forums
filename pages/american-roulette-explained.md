@@ -1,4 +1,4 @@
-## American Roulette Explained
+## American [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) Explained
 
 American Roulette is a popular variation of the classic casino game Roulette. Known for its distinct wheel configuration and betting options, it is widely played in casinos across the United States and online platforms. This version of Roulette provides a thrilling experience combining chance with strategic betting.
 
