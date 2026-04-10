@@ -1,4 +1,4 @@
-## Texas Hold'em Poker Rules
+## [Texas Hold'em](https://www.sunvegascasino.com/online-poker/texas-holdem/) Poker Rules
 
 Texas Hold'em is one of the most popular variations of poker, widely played in casinos and online platforms worldwide. The game is recognized for its strategic depth and combination of luck, skill, and psychology.
 
