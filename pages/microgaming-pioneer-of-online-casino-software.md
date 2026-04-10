@@ -1,4 +1,4 @@
-## Microgaming: Pioneer of Online Casino Software
+## [Microgaming](https://www.sunvegascasino.com/software/microgaming/): Pioneer of Online Casino Software
 
 Microgaming is a prominent name in the online casino software industry, recognized as one of the pioneering companies in developing software solutions for online gambling. Founded in 1994, Microgaming has played a critical role in shaping the landscape of digital gaming by providing a reliable, innovative platform that supports a vast range of casino games.
 
