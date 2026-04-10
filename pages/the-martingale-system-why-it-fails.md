@@ -1,6 +1,6 @@
 ## The Martingale System: Why It Fails
 
-The Martingale System is a well-known betting strategy often applied in games of chance such as roulette and blackjack. It is based on the principle of doubling one's bet after every loss, with the intention of recovering all previous losses with the first win. Despite its popularity, this system has several inherent flaws that can lead to significant financial losses for players.
+The Martingale System is a well-known betting strategy often applied in games of chance such as [roulette](https://www.sunvegascasino.com/casino-games/roulette/) and blackjack. It is based on the principle of doubling one's bet after every loss, with the intention of recovering all previous losses with the first win. Despite its popularity, this system has several inherent flaws that can lead to significant financial losses for players.
 
 ### Origins and Principle
 
