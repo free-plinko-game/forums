@@ -22,7 +22,7 @@ Casino etiquette refers to the professional and courteous conduct expected of pa
 
 5. **Use Hand Signals in Table Games**
 
-   In games like blackjack, use the correct hand signals to indicate your actions (e.g., hit or stand). This practice helps security cameras and staff accurately record the gameplay, minimizing disputes and ensuring fair play.
+   In games like [blackjack](https://www.sunvegascasino.com/casino-games/blackjack/), use the correct hand signals to indicate your actions (e.g., hit or stand). This practice helps security cameras and staff accurately record the gameplay, minimizing disputes and ensuring fair play.
 
 ### Don'ts of Casino Etiquette
 
