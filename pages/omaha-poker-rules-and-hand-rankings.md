@@ -1,4 +1,4 @@
-## Omaha Poker: Rules and Hand Rankings
+## [Omaha Poker](https://www.sunvegascasino.com/online-poker/omaha/): Rules and Hand Rankings
 
 Omaha Poker is a popular variant of poker known for its dynamic gameplay and increased potential for creating strong hands. Originating from the family of community card poker games, Omaha shares similarities with Texas Hold'em but introduces distinctive rules that set it apart.
 
