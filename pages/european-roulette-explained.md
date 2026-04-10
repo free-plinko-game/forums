@@ -1,4 +1,4 @@
-## European Roulette Explained
+## European [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) Explained
 
 European Roulette is a popular variant of the classic casino game roulette, widely played in both land-based and online casinos. Known for its single-zero wheel, European Roulette is appreciated for its relatively better odds compared to other roulette variants.
 
