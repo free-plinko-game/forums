@@ -1,4 +1,4 @@
-## Keno: How the Game Works
+## [Keno](https://www.sunvegascasino.com/casino-games/keno/): How the Game Works
 
 Keno is a lottery-style game commonly found in casinos and online gaming platforms. Originating from ancient China, Keno has gained widespread popularity due to its simple rules and the potential for large payouts. This article provides a comprehensive guide on how Keno works, exploring its history, basic rules, and gameplay strategies.
 
