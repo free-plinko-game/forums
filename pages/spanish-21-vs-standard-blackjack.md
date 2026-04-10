@@ -1,4 +1,4 @@
-## Spanish 21 vs Standard Blackjack
+## Spanish 21 vs Standard [Blackjack](https://www.sunvegascasino.com/casino-games/blackjack/)
 
 Spanish 21 and Standard Blackjack are two popular variations of the classic card game blackjack found in casinos worldwide. While they share core rules, certain key differences set these two games apart. This guide explores these differences, key strategies, and the unique rules associated with each game.
 
