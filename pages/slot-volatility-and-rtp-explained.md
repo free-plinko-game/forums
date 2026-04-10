@@ -1,6 +1,6 @@
 ## Slot Volatility and RTP Explained
 
-Slot machines are a staple of casinos, both online and in traditional gaming venues. Two critical concepts that players frequently encounter are slot volatility and Return to Player (RTP). Understanding these concepts can significantly enhance a player's gaming strategy.
+[Slot machines](https://www.sunvegascasino.com/online-pokies/) are a staple of casinos, both online and in traditional gaming venues. Two critical concepts that players frequently encounter are slot volatility and Return to Player (RTP). Understanding these concepts can significantly enhance a player's gaming strategy.
 
 ### Slot Volatility
 
