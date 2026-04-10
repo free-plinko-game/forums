@@ -20,7 +20,7 @@ Tipping is generally appropriate at different stages of a gambling session:
 
 Tipping can be done in several ways, depending on the game and personal preference:
 
-- **Cash Tips**: The most straightforward method is to hand the dealer a cash tip directly. This is common in games like roulette and craps.
+- **Cash Tips**: The most straightforward method is to hand the dealer a cash tip directly. This is common in games like roulette and [craps](https://www.sunvegascasino.com/casino-games/craps/).
 
 - **Betting for the Dealer**: Another popular method is to place a bet on behalf of the dealer. In games like blackjack, players can put a chip on the side of their bet, indicating it is for the dealer. 
 
