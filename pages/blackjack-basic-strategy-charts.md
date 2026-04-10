@@ -1,4 +1,4 @@
-## Blackjack Basic Strategy Charts
+## [Blackjack](https://www.sunvegascasino.com/casino-games/blackjack/) Basic Strategy Charts
 
 Blackjack basic strategy charts are visual aids utilized by players to enhance their decision-making during gameplay. The charts are designed to minimize the house edge by advising players on the statistically optimal actions they should take based on their hand and the dealer's upcard.
 
