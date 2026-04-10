@@ -17,7 +17,7 @@ A paytable is a chart displayed on a slot machine that details the game's rules,
    - Jackpots or maximum payout information is also presented, often highlighting progressive jackpot details if applicable.
 
 3. **Bonus Features**: 
-   - Paytables describe the special bonuses available, such as free spins, bonus rounds, and special symbol features.
+   - Paytables describe the special bonuses available, such as [free spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/), bonus rounds, and special symbol features.
    - Activation requirements for these bonuses are crucial for players to comprehend to maximize potential profits.
 
 4. **Betting Requirements**:
