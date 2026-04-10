@@ -1,4 +1,4 @@
-## Bingo: From Italian Lotto to Modern Halls
+## [Bingo](https://www.sunvegascasino.com/casino-games/bingo/): From Italian Lotto to Modern Halls
 
 Bingo is a popular game of chance that is widely enjoyed in various formats around the world. Its origins can be traced back several centuries, evolving through different cultures and societies to become the modern game known today. This article explores the historical development of bingo, from its early roots to its current incarnation in gaming halls.
 
