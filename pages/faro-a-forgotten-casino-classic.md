@@ -1,6 +1,6 @@
 ## Faro: A Forgotten Casino Classic
 
-Faro, often described as a staple of 19th-century gambling establishments, is a card game that once rivaled poker and blackjack in popularity. Known for its simple rules and fast-paced action, Faro's influence can still be felt in modern casino games, though its presence has largely faded away from contemporary gambling venues.
+Faro, often described as a staple of 19th-century gambling establishments, is a card game that once rivaled poker and [blackjack](https://www.sunvegascasino.com/casino-games/blackjack/) in popularity. Known for its simple rules and fast-paced action, Faro's influence can still be felt in modern casino games, though its presence has largely faded away from contemporary gambling venues.
 
 ### Historical Background
 
