@@ -1,6 +1,6 @@
 ## Seven Card Stud Poker Guide
 
-Seven Card Stud is one of the classic variants of poker, distinct from the more commonly played Texas Hold'em and Omaha games. This game involves players receiving a combination of face-up and face-down cards over a series of betting rounds, without community cards.
+Seven Card Stud is one of the classic variants of poker, distinct from the more commonly played [Texas Hold'em](https://www.sunvegascasino.com/online-poker/texas-holdem/) and Omaha games. This game involves players receiving a combination of face-up and face-down cards over a series of betting rounds, without community cards.
 
 ### Objective
 
