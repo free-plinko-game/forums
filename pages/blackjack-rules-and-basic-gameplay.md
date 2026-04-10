@@ -1,4 +1,4 @@
-## Blackjack: Rules and Basic Gameplay
+## [Blackjack](https://www.sunvegascasino.com/casino-games/blackjack/): Rules and Basic Gameplay
 
 Blackjack, also known as 21, is one of the most popular casino card games worldwide. It is played between a player and a dealer, and the objective is to have a hand value closer to 21 than the dealer without exceeding 21. This article provides an overview of the basic rules and gameplay of blackjack for beginner players.
 
