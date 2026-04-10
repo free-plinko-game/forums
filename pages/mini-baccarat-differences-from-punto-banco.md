@@ -1,4 +1,4 @@
-## Mini Baccarat: Differences from Punto Banco
+## Mini [Baccarat](https://www.sunvegascasino.com/casino-games/baccarat/): Differences from Punto Banco
 
 Mini Baccarat is a simplified version of the popular casino game, [Baccarat](./baccarat), specifically adapted to appeal to a wider range of players, particularly those who are new to the game. Although Mini Baccarat shares the fundamental rules and objectives with its larger counterpart, Punto Banco, there are several noteworthy differences between the two versions that impact gameplay, table layout, and game dynamics.
 
