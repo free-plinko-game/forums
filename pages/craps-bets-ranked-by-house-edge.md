@@ -1,4 +1,4 @@
-## Craps Bets Ranked by House Edge
+## [Craps](https://www.sunvegascasino.com/casino-games/craps/) Bets Ranked by House Edge
 
 Craps is a popular casino game characterized by its high-energy atmosphere and a variety of betting options. The game is played with two six-sided dice, and players place bets on the outcome of their rolls. One of the key aspects that players consider while betting is the house edge, which represents the mathematical advantage the casino has over the player for each bet. Understanding the house edge for different craps bets can help players make more informed decisions and potentially improve their odds of success.
 
