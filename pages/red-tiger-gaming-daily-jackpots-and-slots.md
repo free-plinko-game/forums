@@ -2,7 +2,7 @@
 
 ### Introduction
 
-Red Tiger Gaming is a prominent software provider in the casino and gaming industry, specializing in the development of online slots and jackpot games. Founded in 2014, the company quickly established a reputation for creating engaging and innovative gaming solutions. Red Tiger Gaming operates as a subsidiary of NetEnt, a leading provider of digital entertainment. The company's portfolio is characterized by a commitment to high-quality graphics, innovative technology, and captivating gameplay.
+Red Tiger Gaming is a prominent software provider in the casino and gaming industry, specializing in the development of online slots and jackpot games. Founded in 2014, the company quickly established a reputation for creating engaging and innovative gaming solutions. Red Tiger Gaming operates as a subsidiary of [NetEnt](https://www.sunvegascasino.com/software/netent/), a leading provider of digital entertainment. The company's portfolio is characterized by a commitment to high-quality graphics, innovative technology, and captivating gameplay.
 
 ### Software and Game Features
 
