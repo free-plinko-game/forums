@@ -24,7 +24,7 @@ The success of Megaways has also spurred a wave of collaborations and licensing 
 
 Several Megaways titles have gained popularity among players, each offering unique themes and gameplay experiences:
 
-- **Bonanza Megaways**: Often credited as the flagship Megaways game, *Bonanza* combines a mining theme with lucrative features like cascading reels and unlimited win multipliers during free spins.
+- **Bonanza Megaways**: Often credited as the flagship Megaways game, *Bonanza* combines a mining theme with lucrative features like cascading reels and unlimited win multipliers during [free spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/).
 
 - **Extra Chilli Megaways**: Building on the success of *Bonanza*, *Extra Chilli* offers a Mexican-themed adventure with features such as the Free Spins Gamble Wheel and cascading reels.
 
