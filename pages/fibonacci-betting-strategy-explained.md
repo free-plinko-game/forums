@@ -1,6 +1,6 @@
 ## Fibonacci Betting Strategy Explained
 
-The Fibonacci Betting Strategy is a progressive betting system rooted in the famous Fibonacci sequence, often utilized in various gambling endeavors, particularly in casino games such as roulette and blackjack. This strategy is named after the Italian mathematician Leonardo of Pisa, popularly known as Fibonacci, who introduced his eponymous sequence to the Western world in 1202.
+The Fibonacci Betting Strategy is a progressive betting system rooted in the famous Fibonacci sequence, often utilized in various gambling endeavors, particularly in casino games such as [roulette](https://www.sunvegascasino.com/casino-games/roulette/) and blackjack. This strategy is named after the Italian mathematician Leonardo of Pisa, popularly known as Fibonacci, who introduced his eponymous sequence to the Western world in 1202.
 
 ### Understanding the Fibonacci Sequence
 
