@@ -6,7 +6,7 @@ VIP and high roller bonuses are incentives offered by casinos and gaming platfor
 
 The structure of VIP and high roller bonuses typically revolves around a tiered system, where players advance through different levels based on their wagering activity. As players move up the tiers, they gain access to more substantial rewards and exclusive benefits. This tiered system is often integrated into a broader [casino loyalty program](./casino-loyalty-program), allowing for seamless progression and rewards accumulation.
 
-1. **Entry Level:** At the initial stage, players may receive smaller bonuses, such as cashback on losses or free spins.
+1. **Entry Level:** At the initial stage, players may receive smaller bonuses, such as cashback on losses or [free spins](https://www.sunvegascasino.com/casino-bonuses/free-spins/).
 2. **Intermediate Tiers:** As players progress, the bonuses increase in value, with higher cashback percentages, more free spins, and potentially even physical gifts.
 3. **Top Tiers:** The highest levels of VIP programs typically offer the most lucrative rewards, including personalized account management, exclusive games, and invitations to special events.
 
