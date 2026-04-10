@@ -34,7 +34,7 @@ Slot machines typically have a high house edge, often ranging from 2% to 10%. Th
 
 Baccarat offers a relatively low house edge. Bets on the "banker" hand have a house edge of approximately 1.06%, while bets on the "player" hand have a house edge of around 1.24%. However, bets on a "tie" have a substantial house edge, often over 14%.
 
-#### Video Poker
+#### [Video Poker](https://www.sunvegascasino.com/online-poker/video-poker/)
 
 Video poker games can have a low house edge, frequently below 1%, but only when players use optimal strategies. Variations like "Jacks or Better" offer different payout tables that affect the house edge.
 
