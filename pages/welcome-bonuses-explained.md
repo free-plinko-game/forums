@@ -1,4 +1,4 @@
-## Welcome Bonuses Explained
+## [Welcome Bonuses](https://www.sunvegascasino.com/casino-bonuses/welcome/) Explained
 
 Welcome bonuses are promotional offers extended by casinos and online gaming platforms to attract new players. These bonuses are typically provided when a player opens a new account or makes their first deposit. Understanding the varieties and terms of these bonuses is crucial for players seeking to maximize their gaming experience.
 
