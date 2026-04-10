@@ -15,7 +15,7 @@ The Kelly Criterion's origin lies in a 1956 research paper titled "A New Interpr
 
 ### Application in Casino Betting
 
-The Kelly Criterion is particularly useful in gambling situations where the probabilities of winning and the odds can be estimated. In casino games, accurate estimation of these probabilities presents a challenge due to the inherent house edge; however, skilled and professional gamblers often apply the criterion to games such as blackjack or sports betting, where skill and probabilistic assessment can provide an edge.
+The Kelly Criterion is particularly useful in gambling situations where the probabilities of winning and the odds can be estimated. In casino games, accurate estimation of these probabilities presents a challenge due to the inherent house edge; however, skilled and professional gamblers often apply the criterion to games such as [blackjack](https://www.sunvegascasino.com/casino-games/blackjack/) or sports betting, where skill and probabilistic assessment can provide an edge.
 
 #### Example in Blackjack
 
