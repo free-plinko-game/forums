@@ -29,7 +29,7 @@ Craps tables are often lively environments with unwritten rules of etiquette. Co
 
 ### Variations
 
-While traditional craps dominate casino floors, several variations exist. Street craps is a simplified form of the game played informally without a craps table, often using any flat surface. Online craps and live dealer craps provide digital alternatives for enthusiasts, maintaining the core elements of the game while offering unique user experiences.
+While traditional craps dominate casino floors, several variations exist. Street craps is a simplified form of the game played informally without a craps table, often using any flat surface. [Online craps](https://www.sunvegascasino.com/casino-games/craps/) and live dealer craps provide digital alternatives for enthusiasts, maintaining the core elements of the game while offering unique user experiences.
 
 ### Conclusion
 
