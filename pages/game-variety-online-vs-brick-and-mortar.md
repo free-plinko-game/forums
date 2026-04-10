@@ -22,7 +22,7 @@ Brick-and-mortar casinos have a long-standing tradition of offering a classic an
 
 #### Categories and Games Offered
 
-1. **Slot Machines**: Traditional casinos offer a wide assortment of slot machines, though the number of different titles is generally limited compared to online offerings. The physical experience of pulling a lever or pressing a button is a tactile aspect that some players find irreplaceable.
+1. **[Slot Machines](https://www.sunvegascasino.com/online-pokies/)**: Traditional casinos offer a wide assortment of slot machines, though the number of different titles is generally limited compared to online offerings. The physical experience of pulling a lever or pressing a button is a tactile aspect that some players find irreplaceable.
 
 2. **Table Games**: These casinos excel in providing authentic table games with the added benefit of personal interaction. Players can partake in poker, blackjack, roulette, baccarat, and others in an atmosphere of social engagement and camaraderie.
 
