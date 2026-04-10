@@ -1,4 +1,4 @@
-## How to Read a Roulette Table Layout
+## How to Read a [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) Table Layout
 
 Roulette is a popular casino game that combines elements of chance and strategy. Understanding the layout of a roulette table is essential for new players, as it allows them to place bets appropriately and increases their appreciation of the game. This article provides a comprehensive guide on how to read and interpret a roulette table layout.
 
