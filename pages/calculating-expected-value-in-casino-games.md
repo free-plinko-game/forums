@@ -16,7 +16,7 @@ In this equation:
 
 ### Applications in Casino Games
 
-Expected value can be applied to various casino games, including slot machines, roulette, blackjack, and poker. Each game consists of distinct rules and payout structures that impact the EV calculation.
+Expected value can be applied to various casino games, including [slot machines](https://www.sunvegascasino.com/online-pokies/), roulette, blackjack, and poker. Each game consists of distinct rules and payout structures that impact the EV calculation.
 
 #### Slot Machines
 
