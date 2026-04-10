@@ -1,4 +1,4 @@
-## Card Counting in Blackjack: How It Works
+## Card Counting in [Blackjack](https://www.sunvegascasino.com/casino-games/blackjack/): How It Works
 
 Card counting is a strategy employed in the casino game of [blackjack](./blackjack) to gain a statistical advantage over the house. This method involves keeping track of certain cards that have been dealt to optimize betting and playing decisions. Contrary to common belief, card counting does not enable players to predict future cards; rather, it offers insight into the remaining composition of the deck, thereby allowing players to adjust their strategy accordingly.
 
