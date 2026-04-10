@@ -1,4 +1,4 @@
-## Origins of Roulette in 18th Century France
+## Origins of [Roulette](https://www.sunvegascasino.com/casino-games/roulette/) in 18th Century France
 
 Roulette is one of the most iconic casino games, known for its distinctive wheel and the range of bets players can place. The origins of roulette can be traced back to 18th century France, where it first emerged as a game of chance.
 
