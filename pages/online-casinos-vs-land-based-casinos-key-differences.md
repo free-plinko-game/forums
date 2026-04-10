@@ -22,7 +22,7 @@ Land-based casinos must contend with limited floor space, which can limit the nu
 
 ### Bonuses and Rewards
 
-The competition among online casinos has led to the proliferation of bonuses and promotions, aimed at attracting and retaining players. These can include welcome bonuses, deposit matches, free spins, and loyalty programs. The availability of such offers can significantly enhance the value for online casino players.
+The competition among online casinos has led to the proliferation of bonuses and promotions, aimed at attracting and retaining players. These can include [welcome bonuses](https://www.sunvegascasino.com/casino-bonuses/welcome/), deposit matches, free spins, and loyalty programs. The availability of such offers can significantly enhance the value for online casino players.
 
 Land-based casinos also provide loyalty programs and incentives, though these are often centered around in-person activities such as free meals, hotel stays, or entertainment tickets. The tangible and immediate nature of these rewards can hold great appeal for frequent visitors.
 
