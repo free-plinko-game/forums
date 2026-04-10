@@ -19,7 +19,7 @@ Some of the most popular games offered in live dealer formats include:
 1. **Live Blackjack**: Players can engage in real-time blackjack games, interacting with the dealer and other players around the virtual table.
 2. **Live Roulette**: Featuring real wheels and dealers, this game replicates the iconic casino experience of watching the roulette wheel spin in real time.
 3. **Live Baccarat**: Known for its simplicity and elegance, baccarat enjoys widespread popularity among live dealer audiences.
-4. **Live Poker Variants**: Various poker formats, such as Casino Hold’em and Three Card Poker, are available with live dealers, often incorporating interactive elements.
+4. **Live Poker Variants**: Various poker formats, such as Casino Hold’em and [Three Card Poker](https://www.sunvegascasino.com/online-poker/3-card/), are available with live dealers, often incorporating interactive elements.
 
 ### Advantages over Traditional Formats
 
