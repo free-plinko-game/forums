@@ -52,6 +52,4 @@ Familiarity with these slot machine terms can greatly enhance a player's underst
 
 ### External Links
 
-- [History of Slot Machines](https://example.com) — A comprehensive overview of the development and evolution of slot machines.
-- [Guide to Slot Machine Strategy](https://example.com) — Tips and strategies for maximizing enjoyment and potential winnings from slot machine play.
 - [Slotomo](http://slotomo.com/) — Expert resource for all things slot gaming.
